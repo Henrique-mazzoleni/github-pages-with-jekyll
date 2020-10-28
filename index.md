@@ -1,3 +1,4 @@
-# Welcome to my blog
+# Willkommen zu meinem Blog Lindinha
 
-I'm glad you are here. I plan to talk about ...
+Ich hoffe, dass es funktioniert.
+Ein monat!
